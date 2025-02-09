@@ -1,0 +1,1 @@
+# Maturitna-stredni-prumyslova-skola-ceska-lipa
